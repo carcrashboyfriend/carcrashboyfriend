@@ -13,7 +13,7 @@ used to be @sevnredsuns
 
 17
 
-ponytown stuff: c+h is always okay idc. im usually offtab or doing something whisp if u need me, i wont be bothered! iwc usually doesnt apply to close friends, i might bully you as a joke hide and move on if you dont like me 
+ponytown stuff: c+h is always okay idc. im usually offtab or doing something whisp if u need me, i wont be bothered! iwc usually doesnt apply to close friends, i love talkin to people pls talk 2 me
 
 look at pages for more info
 
