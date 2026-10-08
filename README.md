@@ -11,9 +11,9 @@ all my socials + pages r linked here, go look for more info
 
 17
 
-ponytown stuff: c+h is always okay idc. im usually offtab or doing something whisp if u need me, i wont be bothered! iwc usually doesnt apply to close friends, i love talkin to people pls talk 2 me
+ponytown stuff: c+h is always okay idc. im usually offtab or doing something since nobody talks on this game bro,, whisp if i dont have chat status on cause im probably not looking at my screen
 
-most of my pages are somewhat old or outdated, im redoing it soon 
+idraw,, go look,,,at my art on tumblr,, i also love doing requests/trades so feel free 2 ask
 
 
 
